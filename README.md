@@ -44,3 +44,14 @@
 위 사항들에 대해 개발 고려 사항, 목표 완료 일정 등 정리가 필요한 상황으로 명일 미팅때 논의 진행하도록 하시면 될 것 같습니다.
 
 내일 미팅때 뵙겠습니다.
+
+
+
+<img width="307" height="277" alt="dddd" src="https://github.com/user-attachments/assets/071e9e4b-f3af-4673-829e-9c799680a6ad" />
+
+<img width="307" height="277" alt="dddd" src="https://github.com/user-attachments/assets/adfc6000-4c7c-4ad3-a01f-efe9dfa1c7a7" />
+
+
+
+
+
